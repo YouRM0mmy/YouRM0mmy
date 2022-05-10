@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @YouRM0mmy
-- 👀 I’m interested in your dad
+- 👀 I’m interested in your daddy
 - 🌱 I’m currently learning how to be a good mommy
-- 💞️ I’m looking to collaborate on a date with your dad
+- 💞️ I’m looking to collaborate on a date with your daddy
 - 📫 How to reach me email i guess
 
 <!---
